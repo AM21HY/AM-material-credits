@@ -1,1 +1,0 @@
-# AM-material-credits
